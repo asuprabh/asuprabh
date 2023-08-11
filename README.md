@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm current a student,<br>Divide and conquer
+I'm a student
 
 
 ## 🌐 Socials:
